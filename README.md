@@ -29,6 +29,13 @@ BP vagyis Béke Poraira
 
 [Gyártás, eladás](http://www.kopjafa.hu/)
 
-[]()
+[Nagyvázsony fatelep](https://fatelepnagyvazsony.hu/)
 
-[]()
+8291 Nagyvázsony, Vöröstói út 4., Tel.: 06 88 264 036
+
+[Tölgyfa rönk, Csákvár]()
+
+Tavaszi vágású tölgy rönk eladó! 
+57.000.-/m3 
++36209237147
+
